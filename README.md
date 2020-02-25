@@ -1,1 +1,0 @@
-# ivanyusyp.github.io
